@@ -1,1 +1,1 @@
-Working on something important
+Starting to code today, so cool
